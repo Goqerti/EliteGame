@@ -1,2 +1,2 @@
-#Başka kapıya hadi zA
-# Həqiqətən kodları açıq qoyacağımı fikirləşdin? Bruh
+//.Başka kapıya hadi zA
+//.Həqiqətən kodları açıq qoyacağımı fikirləşdin? Bruh
