@@ -1,2 +1,2 @@
 # EliteGame
-[Qrupa Əlavə Et 🤘](t.me/elitegamebot?startgroup=true)
+[Qrupa Əlavə Et 🤘](https://t.me/elitegamebot?startgroup=true)
